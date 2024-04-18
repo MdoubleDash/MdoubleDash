@@ -1,10 +1,8 @@
 *Engineer* by day, *Gamer* by night. Always in the process of learning something new.
 
+[Strong opinions, weakly held...?!](https://commoncog.com/strong-opinions-weakly-held-is-bad/#:~:text=Since%20the%20mid%2D1980s%2C%20my,Engage%20in%20creative%20doubt.)
+
 <a href="https://stackexchange.com/users/8629256"><img src="https://stackexchange.com/users/flair/8629256.png" alt="profile for M-- on Stack Exchange, a network of free, community-driven Q&amp;A sites" title="profile for M-- on Stack Exchange"></a>
-
-[Strong opinions, weakly held... does that work?](https://commoncog.com/strong-opinions-weakly-held-is-bad/#:~:text=Since%20the%20mid%2D1980s%2C%20my,Engage%20in%20creative%20doubt.)
-
-
 
 If you are a nerd, be a cool one.
 
